@@ -68,8 +68,7 @@ Before starting my project, I focused on building a strong foundation in both fr
 
 
 ## 📧 Contact  
-**Email**: [trushangpatel282@gmail.com](mailto:trushangpatel282@gmail.com)  
-**LinkedIn**: [LinkedIn Profile](https://www.linkedin.com) *(Update your link)*
+**Email**: [jadejadhruvrajsinh476@gmail.com](mailto:jadejadhruvrajsinh476@gmail.com)  
 
 ---
 
